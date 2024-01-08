@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Preciousalor
+- Finance | Data | Technology | 
+- 💞️ I am interested in exploring the intersection between finance and tech while growing and advancing my career
+- 📫 You can reach me at preciouschiderahalor@gmail.com 
